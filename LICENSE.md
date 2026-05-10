@@ -1,4 +1,4 @@
-
+Experience pressure like never before with pressure smart Script, the #1 Script. Includes auto-heal and anti-ban for unbeatable performance.
 
 
 
